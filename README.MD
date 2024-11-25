@@ -1,1 +1,1 @@
-Helsinki + BOba
+Helsinki
